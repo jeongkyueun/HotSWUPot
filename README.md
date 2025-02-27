@@ -7,4 +7,4 @@
 개발 기간: 2024.06.23. ~ 2024.09.05.
 
 노션 링크:
-https://resonant-rake-34d.notion.site/B-HotSWUPot-d32a9e6603264c049555c707daa5ed93
+https://rhetorical-cerise-45d.notion.site/B-HotSWUPot-1a7e9d63f26f8047b7b4f66a8bb1f6b2
