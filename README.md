@@ -8,3 +8,6 @@
 
 노션 링크:
 https://rhetorical-cerise-45d.notion.site/B-HotSWUPot-1a7e9d63f26f8047b7b4f66a8bb1f6b2
+
+
+![image](https://github.com/user-attachments/assets/2cc26d9d-94ef-4134-acee-e212062b6fef)
